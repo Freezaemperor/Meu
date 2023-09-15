@@ -13,10 +13,13 @@
 Cujo explica minha competição para com os outros.
 ![ ](https://media.tenor.com/b0f9dZDoCa4AAAAC/mbti-entj.gif)
 - Gosto de ler livros
+
 ![ ](https://media.tenor.com/Lj5SFh_tVzkAAAAC/books-read.gif)
 - Gosto também de Dragon Ball
+
 ![ ](https://media.tenor.com/JcuSfsgy_IoAAAAC/goku-dragon-ball.gif)
 - **Star Wars** é minha saga favorita
+
 ![ ](https://media.tenor.com/xMlPK65lad4AAAAd/r2d2-star-wars.gif)
 
 **Procuro sempre ser o melhor e tente sempre conseguir dar o seu máximo em tudo**
